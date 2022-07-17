@@ -1,2 +1,25 @@
 # leetcode-solutions
 all the leetcode solutions i have done till now
+
+HDBCAS  ASCASC HI ASXMASJ CSASC AS
+CSC LASK XJKC A,SA
+, CL;KAKL CASD,
+A CA;LNCASA
+M ACSL,LNASCLM LAC ASA.A
+' ACS';QLCAKN AS
+A,M;C'LA;KL C'A'
+CA]P
+CS SA
+NC ALCJA.,CMANMA.
+CA C
+';A A
+';ACM
+AACA
+LCAC LAA,MAC,AC 'LCAS 
+A' A
+MAC 
+ASLK CAS
+;LCMALCALACA A,MNCSmASC ,A\] A.' A,MCC.
+A CAS'CNQAM,AS
+A' CA
+' ACQA;A A'C;,;L A;M
