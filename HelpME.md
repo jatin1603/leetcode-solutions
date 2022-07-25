@@ -11,16 +11,4 @@ bf
  'v sSMd svd.
   a><m vc sdc,m vd s<M vs>SD / vS' vs/ s
   's s
-  ; l v>S": vs
-  "s dvv
-  s';' vs
-  ' ,v SVD<M sd Sv dsvd'
-  l'sd
-  's 
-  'sv;d 'sv
-  's v
-  sc ,'s>>
 
-
-gdsfipdsfwjnsdfknsdf ndfuibvdsjnsdf
- 
