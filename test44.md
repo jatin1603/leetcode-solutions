@@ -16,3 +16,4 @@ all the leetcode solutions i have done till now
 int diff=min(a[i+m-1] -a[i],min_diff)
 }
 return diff;
+}
